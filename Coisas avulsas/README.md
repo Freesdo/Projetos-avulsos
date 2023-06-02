@@ -1,0 +1,1 @@
+``Não vou comentar nada nos códigos, se virem pra entender se quiserem ver``
